@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BisaGXv2
+- 👀 I’m interested in knownledge
+- 🌱 I’m currently learning AI stuff
+- 💞️ I’m looking to collaborate on robotic projects
+- 📫 How to reach me gaming@att-cardz.de
